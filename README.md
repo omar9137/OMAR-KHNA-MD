@@ -1,1 +1,1 @@
-# OMAR-KHNA-MD
+# OMAR-KHAN-MD
