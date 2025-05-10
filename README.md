@@ -1,4 +1,4 @@
-# OMAR-KHAN-MD
+# omar-khan-sessions
 
 
 
